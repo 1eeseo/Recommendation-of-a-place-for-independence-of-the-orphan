@@ -28,3 +28,9 @@
 
 ## 3. 추려진 입지로 자립준비청년의 독립을 위한 주거시설을 설치.
 ![스크린샷 2022-11-25 오후 7 20 28](https://user-images.githubusercontent.com/101313864/203961526-48324643-56a0-41f5-9594-f837963dce80.png)
+
+## 최종 입지 선정
+![스크린샷 2022-12-05 오후 10 20 07](https://user-images.githubusercontent.com/101313864/205647142-ee98132e-dc34-4a95-982a-9273554f8245.png)
+![스크린샷![스크린샷 2022-12-05 오후 10 20 35](https://user-images.githubusercontent.com/101313864/205647230-c92cf934-5f09-4622-bf77-67d5e612a0c0.png)
+![스크린샷 2022-12-05 오후 10 21 07](https://user-images.githubusercontent.com/101313864/205647317-bec5a5f3-7094-4d04-9d61-65936eb5ba1a.png)
+
