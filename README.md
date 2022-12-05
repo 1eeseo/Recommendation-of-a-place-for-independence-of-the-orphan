@@ -31,6 +31,6 @@
 
 ## 최종 입지 선정
 ![스크린샷 2022-12-05 오후 10 20 07](https://user-images.githubusercontent.com/101313864/205647142-ee98132e-dc34-4a95-982a-9273554f8245.png)
-![스크린샷![스크린샷 2022-12-05 오후 10 20 35](https://user-images.githubusercontent.com/101313864/205647230-c92cf934-5f09-4622-bf77-67d5e612a0c0.png)
+![스크린샷 2022-12-05 오후 10 20 35](https://user-images.githubusercontent.com/101313864/205647230-c92cf934-5f09-4622-bf77-67d5e612a0c0.png)
 ![스크린샷 2022-12-05 오후 10 21 07](https://user-images.githubusercontent.com/101313864/205647317-bec5a5f3-7094-4d04-9d61-65936eb5ba1a.png)
 
